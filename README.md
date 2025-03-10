@@ -2,7 +2,7 @@
 
 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
 
-📢 **Telegram Kanalımız:** 👉 [Katıl ve Maç Linklerini Kaçırma!](t.me/justintv_turkiye)
+📢 **Telegram Kanalımız:** 👉 [Katıl ve Maç Linklerini Kaçırma!](https://t.me/justintv_turkiye)
 
 [![Justin-Tv](https://github.com/user-attachments/assets/fbb5d9bf-77b0-4ef3-af9f-082bb068ba4e)](https://link24.site/JustinTvizle)
 
