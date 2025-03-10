@@ -7,6 +7,9 @@ Justintv, en popüler maçları canlı izleme fırsatı sunuyor! Her anı yükse
 ## 🏆 TÜM SPOR DALLARI
 Futbol, basketbol, tenis… Hangi sporu seviyorsanız, Justintv'de bulabilirsiniz! 🎾🏀
 
+## 📱 [TELEGRAM ADRESİNİ TAKİP ET!](t.me/justintv_turkiye)
+Güncel duyurular ve maç linkleri için Telegram adresimizi takip edin! 🔥
+
 ## 🔥 SÜPER HIZLI YAYINLAR
 Kesintisiz ve lag olmadan maç izleme deneyimi! 🌐💨
 
@@ -17,5 +20,4 @@ Maç saatleri, takım bilgileri ve canlı skorlar sadece bir tık uzağınızda!
 ## 👀 ÜCRETSİZ VE KOLAY ERİŞİM
 Hesap açmaya gerek yok, sadece tıklayın ve maçları ücretsiz izleyin! 💻✨
 
-## 📱 [TELEGRAM ADRESİNİ TAKİP ET!](t.me/justintv_turkiye)
-Güncel duyurular ve maç linkleri için Telegram adresimizi takip edin! 🔥
+
