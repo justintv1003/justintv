@@ -1,19 +1,19 @@
-⚽ Justintv ile Maç Keyfini Zirveye Taşıyın! 🎉
-📺 Canlı Yayın Keyfi
+⚽ JUSTINTV İLE MAÇ KEYFİNİ ZİRVEYE TAŞIYIN! 🎉
+📺 CANLI YAYIN KEYFİ
 Justintv, en popüler maçları canlı izleme fırsatı sunuyor! Her anı yüksek kaliteyle takip etmenin tam zamanı. ⏱️
 JUSTINTV İZLEMEK İÇİN TIKLA
 
-🏆 Tüm Spor Dalları
+🏆 TÜM SPOR DALLARI
 Futbol, basketbol, tenis… Hangi sporu seviyorsanız, Justintv'de bulabilirsiniz! 🎾🏀
 
-🔥 Süper Hızlı Yayınlar
+🔥 SÜPER HIZLI YAYINLAR
 Kesintisiz ve lag olmadan maç izleme deneyimi! 🌐💨
 
-🎯 Güncel Maç Takvimi
+🎯 GÜNCEL MAÇ TAKVİMİ
 Maç saatleri, takım bilgileri ve canlı skorlar sadece bir tık uzağınızda! ⏰📅
 JUSTINTV İZLEMEK İÇİN TIKLA
 
-👀 Ücretsiz ve Kolay Erişim
+👀 ÜCRETSİZ VE KOLAY ERİŞİM
 Hesap açmaya gerek yok, sadece tıklayın ve maçları ücretsiz izleyin! 💻✨
 
 📱 TELEGRAM ADRESİNİ TAKİP ET!
